@@ -1,4 +1,4 @@
-# [SİTEYE GİRİŞ İÇİN TIKLAYINIZ ✅](https://heylink.me/bonusdunyasi/)
+# [SİTEYE GİRİŞ İÇİN TIKLAYINIZ✅](https://heylink.me/bonusdunyasi/)
 
 <div style="display: flex; justify-content: center; gap: 15px;">
 <a href="https://heylink.me/bonusdunyasi/" title="Slot Oyunları">
